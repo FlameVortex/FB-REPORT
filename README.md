@@ -49,7 +49,7 @@ Contact [@FlameVortex_TRS](https://t.me/FlameVortex_TRS) to get access password.
 ## 💡 Tips
 
 ✅ Use VPN for best results  
-✅ Recommended threads: 5-10  
+✅ Recommended threads: 1  
 ✅ Mix mode has highest success  
 ✅ Use valid Facebook URLs  
 
